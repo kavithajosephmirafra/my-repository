@@ -1,15 +1,3 @@
-# my-repo
+# my-repository
 
-YOU
-ARE
-CAR
-beautiful
-DFRTG
-RHIJJH
 
-HGJHGJHJJ
-HGHGJ
-world
-HYJUK
-FRGTHU
-hello
